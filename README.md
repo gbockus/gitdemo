@@ -15,6 +15,6 @@
 - Gets the name Calvin Kline
 
 ### Marty goes to the enchantment under the sea dance 
-
+- Marty gets locked in the trunk
 
 ## 2015 spoiler alert
