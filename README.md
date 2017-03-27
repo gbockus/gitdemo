@@ -15,8 +15,10 @@
 - Gets the name Calvin Kline
 
 ### Marty goes to the enchantment under the sea dance 
+- Marty gets locked in the trunk
 - George punches biff
 - Shreds the guitar 
 - Marty starts disappearing  
+
 
 ## 2015 spoiler alert
